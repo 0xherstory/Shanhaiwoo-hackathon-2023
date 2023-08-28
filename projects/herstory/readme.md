@@ -1,0 +1,3 @@
+Herstory旨在打造一个去中心化女性社交+NFT平台，让所有女性和非二元性别者可以创造、讲述和记录自己以及身边人的故事并永久和免费的留存在web3里，让我们可以自己执笔在人类文化里留下无法抹除的，完整的，立体的形象，同时鼓励和激励后来者做任何自己做想做的事。最后平台将以NFT等的形式探索给予优秀创作者经济回报。
+
+Herstory is a community dedicating to build a womxn social+NFT platform. It's a place where all women and minority can create, tell and share their own stories or those of their love ones, and all the stories will be recorded on Web3 freely and forever. In this case, womxn can finally hold the pen and write down the vivid and sharp picture of every character in our long human history, where it can't be erased or twisted. We will empower the creators to express themselves through NFT with considerable profit as a return to both theirselves and the community they want to help.
